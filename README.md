@@ -1,3 +1,0 @@
-# esame
-# esame
-# esame
